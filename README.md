@@ -1,0 +1,2 @@
+# saaqw
+İnsanlar İçin Yapılmıştır!
